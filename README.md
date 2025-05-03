@@ -46,8 +46,8 @@ Saya adalah seorang lulusan baru dengan semangat tinggi untuk mendalami dunia **
 ---
 
 ### 📫 Hubungi Saya
-- 📧 Email: rizki.ramdani@email.com
-- 💼 LinkedIn: [linkedin.com/in/rizki-ramdani](https://linkedin.com/in/rizki-ramdani)
+- 📧 Email: riskiram122@gmail.com
+- 💼 LinkedIn: [linkedin.com/in/rizki-ramdani](https://www.linkedin.com/in/rizki-ramdani-32a6a4221/)
 - 📱 WhatsApp: [Klik untuk Chat](https://wa.me/qr/YXFWUBLZ6OXDB1)
 
 ---
